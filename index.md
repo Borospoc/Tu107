@@ -18,7 +18,7 @@
 - Birthday : 14 September 2002.
 
 
-- Age : 18 Years
+- Age : 19 Years
 
 
 - Nationality : Thai
